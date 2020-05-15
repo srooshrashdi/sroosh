@@ -1,0 +1,2 @@
+# sroosh
+game niky bazii
